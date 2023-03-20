@@ -1,5 +1,5 @@
 ### Hello and welcome to my profile!
 
 - Junior mc dev
-- Pronouns: 🏳️‍⚧️ she/her
+- waiting to do a public project...
 
